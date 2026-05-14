@@ -1,4 +1,4 @@
-# 
+# Get the ultimate pump.fun sniper bot with new Token Sniper for pump.fun sniper bot | simulation-mode & rug-pull-detection. Featuring simulation-mode and rug-pull-detection, it's
 
 
 
